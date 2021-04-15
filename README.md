@@ -4,7 +4,7 @@
 **PlugAndCree/PlugAndCree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-- 🔭 I’m currently working on [Comrades Network, JustGame MC Network]
+- 🔭 I’m currently working on [Comrades Network, JustGame MC Network, CraftHeroes Network]
 - 🌱 I’m currently learning Django web framework
 - 💬 Ask me about things
 - 📫 How to reach me: Telegram @NicolaMarangon
