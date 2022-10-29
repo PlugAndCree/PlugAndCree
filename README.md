@@ -4,8 +4,8 @@
 **PlugAndCree/PlugAndCree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-- 🔭 I’m currently working on [Comrades Network]
-- 🌱 I’m currently learning Django web framework
-- 💬 Ask me about things
+- 🔭 I’m currently working on [My projects]
+- 🌱 I’m currently learning Minestom
+- 💬 Ask me about things i like
 - 📫 How to reach me: Telegram @NicolaMarangon
-- ⚡ Fun fact: I drink a lot of "succo chimico"
+- ⚡ Fun fact: I drink a lot of "succo chimico"... actually not that "chimico"
