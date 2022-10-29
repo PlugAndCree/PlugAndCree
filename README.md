@@ -9,3 +9,13 @@
 - 💬 Ask me about things i like
 - 📫 How to reach me: Telegram @NicolaMarangon
 - ⚡ Fun fact: I drink a lot of "succo chimico"... actually not that "chimico"
+
+➖➖🟥🟥🟥                                                            
+➖🟥🟥🟥🟥🟥                                    
+🟥🟥🟥🟦🟦🟦                                                                        
+🟥🟥🟥🟦🟦🟦                                                                                                                                    
+🟥🟥🟥🟥🟥🟥                                                            
+🟥🟥🟥🟥🟥🟥                                                
+➖🟥🟥🟥🟥🟥                                                                        
+➖🟥🟥➖🟥🟥                                                
+➖🟥🟥➖🟥🟥                                                            
